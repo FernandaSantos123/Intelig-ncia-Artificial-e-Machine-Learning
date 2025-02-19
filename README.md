@@ -1,1 +1,1 @@
-# Intelig-ncia-Artificial-e-Machine-Learning
+# Inteligencia-Artificial-e-Machine-Learning
